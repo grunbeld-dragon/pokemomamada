@@ -1,1 +1,1 @@
-wswswswswswswswsws# pokemomamada
+# pokemomamada
